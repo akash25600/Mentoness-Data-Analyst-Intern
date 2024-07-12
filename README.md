@@ -6,3 +6,7 @@ Linkedin Post - https://www.linkedin.com/posts/akash-p-a69b26255_dataanalystinte
 **Task 2**
 
 Linkedin Post - https://www.linkedin.com/posts/akash-p-a69b26255_internship-activity-7210511757428031488-B0-K?utm_source=share&utm_medium=member_desktop
+
+**Task 3**
+
+Linkedin Post - https://www.linkedin.com/posts/akash-p-a69b26255_internship-dataanalyst-activity-7214885297044488193-LpcT?utm_source=share&utm_medium=member_desktop
